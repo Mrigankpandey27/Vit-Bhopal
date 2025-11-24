@@ -1,2 +1,0 @@
-# Vit-Bhopal
-Hotel 
